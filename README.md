@@ -1,0 +1,1 @@
+# STAT4710J-TA-Materials-26FALL
